@@ -1,0 +1,1 @@
+Akan culture is one of the traditional matrilineal cultures of Africa. Akan art is wide-ranging and renowned, especially for the tradition of crafting bronze gold weights, using the lost-wax casting method. The Akan culture reached South America, the Caribbean, and North America
